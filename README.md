@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @devwithmor
+- 👀 I’m interested in development world
+- 🌱 I’m currently learning everything that i don't know :))
+- 📫 How to reach me? contact me via email devwithmor@gmail.com
